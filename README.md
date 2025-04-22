@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ls.zinni@gmail.com**
 
-- ⚡ Fun fact **I play Go, Chess, football and Padel. I have a YouTube Channel: youtube.com/c/lucianozinni**
+- ⚡ Fun fact **I play Go, Chess, Football and Padel. I have a YouTube Channel: youtube.com/c/lucianozinni**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
